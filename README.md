@@ -1,1 +1,1 @@
-# Landing-Page---Wayzen-Solutions
+# Landing-Page-Wayzen-Solutions
